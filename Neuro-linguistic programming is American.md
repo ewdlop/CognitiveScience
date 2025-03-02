@@ -1,1 +1,1 @@
-# Neuro-linguistic programming is American
+# Neuro-linguistic programming is American.
